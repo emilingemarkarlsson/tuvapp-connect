@@ -1,2 +1,2 @@
 Tuvapp-connect
-![Screenshots](https://drive.google.com/uc?export=view&id=1rqwMj0L-cYs5FyTQ_BD9--yNY5LV8VBj)
+![Screenshots](https://drive.google.com/file/d/1UOol638KIV0W96uhqVqH6wAAzdNhyRto/view?usp=sharing)
